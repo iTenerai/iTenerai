@@ -1,4 +1,4 @@
-### Breaking some limits every now and then
+### Inclusivity and customization is my passion
 
 * Founder and Owner of [Nightlight](https://night-light.cz)
 * Self-taught developer
